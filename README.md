@@ -1,0 +1,2 @@
+# policies
+.NET Foundation Policies
