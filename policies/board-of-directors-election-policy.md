@@ -16,7 +16,7 @@ Each individual member of the Foundation current at the time of the election is 
 
 At-Large Directors are elected to a three-year term.
 
-For the 2020-2021 Board term only, once the incoming Board of Directors is seated, staggered term durations will be established among the six At-Large Director seats to help enhance the continuity of the organization's governance. Specifically, three At-Large Director seats will be chosen randomly to serve a one-time, one-year term. The remaining three At-Large Director seats will have the standard two-year term. For all subsequent elections, the Foundation's members will elect only three At-Large Director seats each year.
+For the 2020-2021 Board term only, once the incoming Board of Directors is seated, staggered term durations will be established among the six At-Large Director seats to help enhance the continuity of the organization's governance. Specifically, three At-Large Director seats will be chosen randomly to serve a one-time, one-year term. The remaining three At-Large Director seats will have the standard three-year term. For all subsequent elections, the Foundation's members will elect only three At-Large Director seats each year.
 
 ## Vacancies
 
